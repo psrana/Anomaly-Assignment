@@ -23,7 +23,4 @@
 
 
 ### Submission Link
-- <Availalbe Here>
-
-
--  
+- Availalbe Soon
