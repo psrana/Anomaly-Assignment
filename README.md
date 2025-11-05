@@ -23,4 +23,4 @@
 
 
 ### Submission Link
-- [Availalbe Soon](https://forms.gle/ZZ5gEvWxeXZKgTXJA)
+- [Click Here](https://forms.gle/ZZ5gEvWxeXZKgTXJA)
